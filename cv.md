@@ -7,7 +7,7 @@
 
 **Email** avatar_bermet@mail.ru
 
-**Telegram** @savage
+**Telegram** @savage26
 
 **GitHub** [mercer26](https://github.com/mercer26)
 
